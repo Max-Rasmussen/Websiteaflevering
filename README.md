@@ -1,2 +1,0 @@
-# Websiteaflevering
-Studiestart prøve
